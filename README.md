@@ -58,9 +58,15 @@ DNKWorkshop aims to bridge creative design and practical embroidery needs.
 
 ## Connect with DNKWorkshop
 
-- Discover more designs and updates through our official channels  
-- Explore additional embroidery collections and digital products  
-- Follow along for new releases and creative inspiration  
+Explore more digital embroidery designs and product updates from DNKWorkshop:
+
+- 🌐 Website: https://dnkworkshop.com/
+- 🛒 Marketplace: https://web.facebook.com/profile.php?id=100064113008738&_rdc=6&_rdr#
+- 📌 Pinterest: https://id.pinterest.com/DNKWorkshop/
+- ✖️ X (Twitter): https://x.com/dnk_workshop
+
+For collaborations, product inquiries, or updates, feel free to reach out through the official channels above.
+
 
 ---
 
